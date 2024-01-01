@@ -1,8 +1,7 @@
 ### olá Eu sou o António-Pedro-Paulo👍🏻​✌🏼
 
 ​[![Email](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](https://myaccount.google.com/?utm_source=chrome-profile-chooser&pli=1)
-​[![Linkedin](www.linkedin.com/in/
-antónio-pedro-paulo-533b32233)
+
 ​[![Facebook](https://img.shields.io/badge/Facebook-1877F2?style=for-the-badge&logo=facebook&logoColor=white)](https://www.facebook.com/profile.php?id=100006196786173)
 
 
